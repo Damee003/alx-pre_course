@@ -1,1 +1,1 @@
-I love Jesus more than anything in this world
+I love Jesus more than everything in this world
